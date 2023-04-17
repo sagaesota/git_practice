@@ -9,7 +9,7 @@
     * 音楽 
 * SNS
    * instagram <img width="20" alt="" src="https://user-images.githubusercontent.com/130330488/232358987-d85e1887-fd10-4241-8f3f-e1a6cd3f1a2f.png">
-[instagram](https://www.instagram.com/spoqu_aaa/) 
+     [instagram](https://www.instagram.com/spoqu_aaa/) 
 
 * 最近あったこと
    * Nissyの曲にハマって一日中聴いてた
