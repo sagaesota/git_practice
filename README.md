@@ -11,7 +11,7 @@
 <img width="50" alt="" src="https://user-images.githubusercontent.com/130330488/232358987-d85e1887-fd10-4241-8f3f-e1a6cd3f1a2f.png">
 [instagram](https://www.instagram.com/spoqu_aaa/)
 
-* 最近あっとこと
+* 最近あったこと
    * Nissyの曲にハマって一日中聴いてた
    * valorantで台パンして机を破壊しかけた
 
