@@ -12,7 +12,7 @@
 [instagram](https://www.instagram.com/spoqu_aaa/)
 
 * 最近あっとこと
-　 * Nissyの曲にハマって一日中聴いてた
+　   * Nissyの曲にハマって一日中聴いてた
    * valorantで台パンして机を破壊しかけた
 
 
